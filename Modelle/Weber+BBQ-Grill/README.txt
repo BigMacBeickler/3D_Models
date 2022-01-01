@@ -1,1 +1,0 @@
-Weber BBQ-Grill by zork7783 on Thingiverse: https://www.thingiverse.com/thing:4567108
